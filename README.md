@@ -1,5 +1,4 @@
-# GOPINATHMANICKAM95.github.io
-# Hello, I'm [Your Name] 👋
+# Hello, I'm Gopinath Manickam👋
 
 ## About Me
 
